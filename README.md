@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @binbear60
+- 👀 I’m interested in website technology and integrated with AI.
+- 🌱 I’m currently learning how to create and manage feature-rich websites using CMS platforms like WordPress, to support  with membership based organisations. 
+- 💞️ I’m looking to collaborate on projects that enhance user experience in educational and association platforms, particularly those that streamline administrative tasks and user engagement.
+- 📫 How to reach me: will.adi@me.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am a practitioner and advocate of traditional Chinese martial arts, and I am working to spread the health benefits of Tai Chi and Qigong.
